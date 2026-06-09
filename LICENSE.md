@@ -1,4 +1,4 @@
-#  
+#  math for brainrots custom Script offers the most advanced math for brainrots Script, with silent aim and god mode. Perfect for dominating any match.
 
 
 
